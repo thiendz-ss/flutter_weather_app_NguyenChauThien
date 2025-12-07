@@ -171,3 +171,5 @@ Dự báo:
 
 Nguyễn Châu Thiện
 MSSV : 2224801030117
+
+=> Link video demo : https://drive.google.com/file/d/16uAIPmnPMMCvX-5i0lC_EB9-juxv0k0a/view?usp=sharing
